@@ -1,1 +1,1 @@
-# link
+# ngapain lu bego?
